@@ -1,5 +1,5 @@
 - 👋 Hi, I’m rehan khan
-- 👀 I’m interested in ...coading
+- 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...bechlore of technology
 - 💞️ I’m looking to collaborate on ...noting
 - 📫 How to reach me ...form soicial media
